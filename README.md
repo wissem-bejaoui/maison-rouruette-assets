@@ -1,0 +1,1 @@
+# maison-rouruette-assets
